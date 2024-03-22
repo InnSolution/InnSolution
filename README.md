@@ -23,10 +23,7 @@ Stay tuned for our exciting range of software products, designed to revolutioniz
 ## Contact Us
 
 **Address:**  
-No 37, 3rd Cross Thindlu, Bangalore 560097
-
-**Phone:**  
-9036170401
+Bangalore
 
 We are always looking to collaborate and innovate. For any business inquiries or more information about our services and products, please contact us.
 
